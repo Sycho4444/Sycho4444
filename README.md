@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Sycho4444
+- 👀 I’m interested in PROGRAMMING
+- 🌱 I’m currently learning programming
